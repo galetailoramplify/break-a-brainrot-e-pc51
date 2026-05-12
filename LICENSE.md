@@ -1,4 +1,4 @@
-#  
+#  break a brainrot egg best Scripts is the best break a brainrot egg Script, featuring unlimited stamina and one-hit kill. Safe and powerful for all
 
 
 
